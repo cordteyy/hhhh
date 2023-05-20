@@ -1,3 +1,5 @@
+![data](https://github.com/cordteyy/hhhh/assets/133138708/6cb1c6a4-27df-411e-bfb6-bc47d6838385)
+![IMG_20230520_113207](https://github.com/cordteyy/hhhh/assets/133138708/b9325777-a333-4c88-b45d-02f0179490b0)
 ![data](https://github.com/cordteyy/hhhh/assets/133138708/45b8fcfc-38f8-4d43-89d5-472f82735d77)
 ![Uploading data.jpg…]()
 ![titip](https://github.com/cordteyy/hhhh/assets/133138708/4c646279-72de-4701-b1b5-15708d58e180)
